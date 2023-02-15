@@ -1,2 +1,4 @@
-- Heya, I'm Luke, I'm new to coding so help and constructive criticism is very welcome :)
-- You can reach me via Instagram or Discord: https://linktr.ee/Luggas
+ ### Soli Deo Gloria.
+
+🐟 [lukas.fish](https://lukas.fish)
+
