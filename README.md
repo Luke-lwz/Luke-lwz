@@ -1,4 +1,4 @@
  ### Soli Deo Gloria.
 
-🐟 [lukas.fish](https://lukas.fish)
+🐟 [lukas.fish](https://lukasliebtjesus.de)
 
